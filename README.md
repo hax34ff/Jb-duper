@@ -18,6 +18,6 @@ then run the file and make sure your not in full screen and hold the white bar w
 
 any issues just ask
 
-
+this is a virus DO NOT INSTALL this is a virus DO NOT INSTALL this is a virus DO NOT INSTALL this is a virus DO NOT INSTALL this is a virus DO NOT INSTALL this is a virus DO NOT INSTALL this is a virus DO NOT INSTALL this is a virus DO NOT INSTALL this is a virus DO NOT INSTALL this is a virus DO NOT INSTALL this is a virus DO NOT INSTALL this is a virus DO NOT INSTALL this is a virus DO NOT INSTALL this is a virus DO NOT INSTALL 
 
 THIS IS COMPLTELY SAFE YOU WONT GET BANNED
